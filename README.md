@@ -1,1 +1,1 @@
-# rsschool-cv
+https://dmdolgin.github.io/rsschool-cv/cv
